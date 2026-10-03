@@ -1,2 +1,2 @@
 # Druvis-Weyerhauser-III-wallpaper
-A small project to fulfill my desire to show admiration to miss Druvis Weyerhauser III
+A modest endeavor conceived to manifest my profound veneration for Miss Druvis Weyerhauser III.
