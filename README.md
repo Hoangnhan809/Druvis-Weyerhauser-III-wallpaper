@@ -1,2 +1,2 @@
 # Druvis-Weyerhauser-III-wallpaper
-A modest endeavor conceived to manifest my profound veneration for Miss Druvis Weyerhauser III.
+An unostentatious opusculum, wrought to betoken my unfeigned prostration before Miss Druvis Weyerhauser III.
